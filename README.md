@@ -1,4 +1,4 @@
-joke generator
-click the link to see the website
+Are you bouring ?
 
-https://satyajit-s-au19.github.io/newOne/
+click here - https://satyajitlenka.github.io/JokeGenerator/
+I promise you will feel Happy 😃
